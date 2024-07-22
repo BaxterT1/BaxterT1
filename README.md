@@ -1,1 +1,1 @@
-I am a nerd for learning :)
+I like to learn and master :)
